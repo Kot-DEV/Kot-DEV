@@ -1,0 +1,1 @@
+Przecinek jest fajny!
